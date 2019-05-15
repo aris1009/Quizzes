@@ -1,0 +1,1 @@
+A compilation of interesting quizzes I find online and decide to solve.
